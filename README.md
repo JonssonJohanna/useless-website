@@ -1,12 +1,12 @@
 INSERT MANDATORY GIF
 
-# Project Title
+# BREAK OUT GAME
 
 Text about the project. This would also be a great place to link the game on Netlify.
 
 # Installation
 
-Add the installation instructions.
+Here is the link http://eggie.love/fun-game/
 
 # Code Review
 
