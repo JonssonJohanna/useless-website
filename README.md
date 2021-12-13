@@ -1,4 +1,4 @@
-INSERT MANDATORY GIF
+img[https://thumbs.gfycat.com/AnchoredScornfulAustraliansilkyterrier-size_restricted.gif]
 
 # BREAK OUT GAME
 
