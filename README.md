@@ -1,4 +1,4 @@
-![[https://thumbs.gfycat.com/AnchoredScornfulAustraliansilkyterrier-size_restricted.gif]]
+![img](https://thumbs.gfycat.com/AnchoredScornfulAustraliansilkyterrier-size_restricted.gif)
 
 # BREAK OUT GAME
 
